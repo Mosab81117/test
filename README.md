@@ -1,0 +1,1 @@
+waxaa qory nin layaraado muscab dahir oo balayo ah sida codeska losameyo balayo ku ah ?
